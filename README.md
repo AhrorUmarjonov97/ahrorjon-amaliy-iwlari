@@ -1,0 +1,1 @@
+# ahrorjon-amaliy-iwlari
